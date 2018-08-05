@@ -1,2 +1,0 @@
-# LearnJapanese
-Website
